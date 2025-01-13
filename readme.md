@@ -12,4 +12,4 @@
 
 ---
 
-> Send Anonymous Tips [here](https://www.admonymous.co/tanvir)
+> Send Anonymous Tips [here](https://www.admonymous.co/tanvir1337x)
